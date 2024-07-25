@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @ashishtariyal
-- 
+👋 Hi, I’m @ashishtariyal
+ 
 👀 I’m interested in Java Full Stack Developer
 
 💞️ I’m looking to collaborate on Any kind of New projects based on Frontend Developer | Backend Developer | Full Stack Developer | web Developer
