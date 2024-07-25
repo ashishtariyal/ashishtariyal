@@ -6,7 +6,7 @@
 
 📫 How to reach me Just Click here https://www.linkedin.com/in/ashish-tariyal-7a511129a/ | Email: ashishtariyal04@gmail.com
 
-My Portfolio Click Here https://ashishtariyal.netlify.app
+⚡ My Portfolio Click Here https://ashishtariyal.netlify.app
 
 😄 Pronouns: He/Him
 
